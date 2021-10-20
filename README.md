@@ -7,5 +7,3 @@ I included the dump for reference. Enjoy!
 
 See it in action:
 https://www.youtube.com/watch?v=TO2CKiUsHDI
-
-DADDYDEEEEEEEEEEEEEP WAS HERE
